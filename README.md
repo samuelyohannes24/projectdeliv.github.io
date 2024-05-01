@@ -9,6 +9,16 @@ Born and raised in Kansas City. Went to high school at Blue Valley Northwest Hig
 
 Taken and completed CS 101, CS 101L, CS 191, CS 201R, CS 201L, CS 281R, CS 291, CS 303, CS 320, CS 321, CS 490 Special Topics, IT 222, IT 321
 
+### Work Expirience
+Student Research Assitant
+Front Desk Student Assistant
+Cerner Scholar 
+
+### Contact Me !
+syyohannes03@gmail.com
+https://www.linkedin.com/in/samuelyyohannes/
+
+
 
 
 
